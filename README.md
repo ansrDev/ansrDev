@@ -2,8 +2,8 @@
 
 ## I'm a Developer!
 
-- 🌱 I’m currently learning everything i like 
-- 🥅 2021 Goals: Learn as much as I could
+- 🌱 I’m currently learning everything i like 👻
+- 🥅 2021 Goals: Learn as much as I could 😆
 
 ### Connect with me:
 
